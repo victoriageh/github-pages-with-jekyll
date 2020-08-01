@@ -1,3 +1,7 @@
+---
+title: "stationery essentials (during quarantine)"
+date: 2020-08-01
+---
 Even though I recently got a new iPad for note-taking (which, by the way, has changed my life), I still love love my pens for bullet journaling. 
 Here's a list of pens that have changed my life.
 - pilot juice up 04
